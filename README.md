@@ -1,1 +1,0 @@
-# Tesis6032241001Syayid
